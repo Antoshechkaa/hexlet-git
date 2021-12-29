@@ -1,1 +1,0 @@
-Lol KeK Cheburek
